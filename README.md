@@ -6,6 +6,5 @@
 - 👯 I’m looking to collaborate on Projects related to AI&ML.
 - 🌟 Passionate research enthusiast.
 - 🚀 Ready to revolutionize the world through groundbreaking technological research 🔬✨.
-- 📫 How to reach me: sujapanchal17@gmail.com
-- 😄 Pronouns: he/his
+- 📫 How to reach me: sujapanchal17@gmail.com, 23bce334@nirmauni.ac.in
 
